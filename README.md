@@ -1,0 +1,1 @@
+# Rakuten_training_homework1
